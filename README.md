@@ -1,2 +1,2 @@
 # Platform-study
-Platform study
+Platform study-Douyin & Tik Tok
